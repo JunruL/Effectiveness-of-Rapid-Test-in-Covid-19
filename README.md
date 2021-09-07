@@ -1,0 +1,1 @@
+# Effectiveness-of-Rapid-Test-in-Covid-19
